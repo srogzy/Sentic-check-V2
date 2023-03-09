@@ -2,9 +2,9 @@
 
  • Bu Script [![Srogzy](Srogzy)](https://discord.com/users/592093326170390559) ve [![Sentictyn](SenticTyn)](https://discord.com/users/513053333011824651)   Tarafından yapılmıştır. 
 
-• Script'i paylaşmamı istiyorsanız sizlerden 150 star ve 40 Fork bekliyorum.
+• Script'i Satın almak istiyorsanız sıfırdan 100%'e kadar panel kuruluyor yardım ediyoruz !
 
-• Sentic Minecraft hesap Sorgulamak istiyorsanız [![Discord.gg/sentic](Srogzy)](https://discord.gg/sentic) sunucusuna gelmeniz Ve ticket açmanız yeterli orda sizlere premium hesap fiyatlarını görürsünüz 
+• Sentic Minecraft Script'i Satın almak istiyorsanız [![Discord.gg/sentic](Srogzy)](https://discord.gg/sentic) sunucusuna gelmeniz Ve ticket açmanız yeterli orda sizlere Script'in fiyatını görürsünüz 
 
 # Görseller
 
